@@ -1,2 +1,2 @@
 # variel_98
-love,inspiration
+inspiration
